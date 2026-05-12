@@ -2,7 +2,7 @@
 
 [daily clicks :watermelon:](https://arab.org/click-to-help/palestine/)
 
-![](https://komarev.com/ghpvc/?username=theshootist&color=6b4506&base=4069&style=plastic&label=👑)
+![](https://komarev.com/ghpvc/?username=theshootist&color=f073a1&base=4069&style=plastic&label=👑)
 
 byakuya kisser ♡ (≧◡≦)
 

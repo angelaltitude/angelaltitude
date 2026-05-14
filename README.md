@@ -16,7 +16,7 @@ byakuya kisser ♡ (≧◡≦)
 
 ![](https://file.garden/aNlC8bn6tHaGaN__/plane2) [rentry](https://rentry.co/gt-r) ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏![](https://file.garden/aNlC8bn6tHaGaN__/byakuya%20glasses) [atabook](https://instrumentality.atabook.org/)
 
-gold stamps by [@serlei-stamps](https://www.tumblr.com/serlei-stamps?source=share), rest by me
+gold stamps by [@serlei-stamps](https://www.tumblr.com/serlei-stamps?source=share)
 
 atabook signs appreciated!! c+h always welcome
 

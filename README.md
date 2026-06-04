@@ -4,7 +4,7 @@
 
 ![](https://komarev.com/ghpvc/?username=theshootist&color=62a6bd&base=4069&style=plastic&label=👑)
 
-byakuya kisser ♡ (≧◡≦)
+dottore & byakuya kisser ♡ (≧◡≦)
 
 ![](https://file.garden/aNlC8bn6tHaGaN__/money)
 

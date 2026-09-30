@@ -17,3 +17,5 @@
 c+h always welcome! ^_^
 
 basic dni, -16, proshit/darkshit whatever else, vivzie defenders and r slur users You will be vaporized
+
+also Plss pls check out [weebnordlord's hetalia au](https://www.tumblr.com/underhell69/787383096825856000/online-pangea-explosion-character-refs?source=share) im Genuinely insane abouit it 🤤🤤
